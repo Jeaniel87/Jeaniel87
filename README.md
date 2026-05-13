@@ -6,13 +6,21 @@ Hands-on experience in data analysis and problem-solving with the ability to ada
 
 Skilled in SAS, SQL, Python, Excel advanced, Tableau, and Power BI to provide actionable insights and solve business problems.
 
+
+
+
+
+
+
+
+
 Hobbies & Interests:
 
-I like reading
+I like reading.📖  
   
-Member of Toastmasters International
+Member of Toastmasters International, developing public speaking 🎤, leadership 🏆 , and communication skills 💬.
 
-**Music:** Playing piano and guitar (always learning new songs!)
+**Music:** Play piano 🎹 and guitar 🎸 (always learning new songs!).
     
   
   
