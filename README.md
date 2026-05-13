@@ -14,6 +14,14 @@ Skilled in SAS, SQL, Python, Excel advanced, Tableau, and Power BI to provide ac
 
 
 
+
+
+
+
+
+
+
+
 Hobbies & Interests:
 
 I like reading.📖  
