@@ -24,11 +24,11 @@ Skilled in SAS, SQL, Python, Excel advanced, Tableau, and Power BI to provide ac
 
 Hobbies & Interests:
 
-  -     I like reading.📖  
+   - I like reading.📖  
   
-  -     Member of Toastmasters International, developing public speaking 🎤, leadership 🏆 , and communication skills 💬.
+   - Member of Toastmasters International, developing public speaking 🎤, leadership 🏆 , and communication skills 💬.
 
-  -     **Music:** Play piano 🎹 and guitar 🎸 (always learning new songs!).
+   - **Music:** Play piano 🎹 and guitar 🎸 (always learning new songs!).
     
   
   
