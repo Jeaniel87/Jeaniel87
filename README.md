@@ -6,8 +6,11 @@ Hands-on experience in data analysis and problem-solving with the ability to ada
 
 Skilled in SAS, SQL, Python, Excel advanced, Tableau, and Power BI to provide actionable insights and solve business problems.
 
-- ⚡ Fun fact: 
---> I love music. I play drum, piano, and guitar.
+- Hobbies & Interests:
+  I like reading
+  Member of Toastmasters International
+  **Music:** Playing piano and guitar (always learning new songs!)
+    
+*   
   
---> I like reading, going to the gym, and cooking
   
